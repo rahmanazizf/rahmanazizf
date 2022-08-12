@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rahmanazizf
-- 👀 I’m interested in Chemistry and Data
+- 👀 I’m interested in Chemistry and Data Science
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on anything I am capable of and interested in
 - 📫 You can hit me up through rahmanazizf@gmail.com
