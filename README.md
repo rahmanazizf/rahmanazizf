@@ -1,4 +1,4 @@
-A chemist who codes 🥼💻
+A chemist that codes 🥼💻
 Hit me up through ✨rahmanazizf@gmail.com✨
 
 <!---
