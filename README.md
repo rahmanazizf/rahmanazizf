@@ -1,5 +1,5 @@
 A chemist who codes 🥼💻
-Hit me up through ✨rahmanazizf@gmail.com✨
+Hit me up through rahmanazizf@gmail.com
 
 <!---
 rahmanazizf/rahmanazizf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
